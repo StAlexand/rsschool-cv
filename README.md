@@ -1,1 +1,1 @@
-# rsschool-cv
+https://StAlexand.github.io/rsschool-cv/cv
