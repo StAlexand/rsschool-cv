@@ -1,1 +1,1 @@
-https://StAlexand.github.io/rsschool-cv/cv
+https://StAlexand.github.io/rsschool-cv/
